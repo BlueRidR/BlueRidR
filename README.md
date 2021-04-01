@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlueRidR
+- 👀 I’m interested in coding, video games, and learning new things in different environments with different experiences.
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on pretty much nothing for now, but in the future I may.
+- 📫 How to reach me: you can go to my instagram or my discord. Discord: Bluee#1621 -- Instagram: blueridr
